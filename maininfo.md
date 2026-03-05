@@ -1,0 +1,1 @@
+šeit ir informācija par main lapu
